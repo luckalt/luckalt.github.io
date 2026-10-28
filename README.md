@@ -1,0 +1,1 @@
+# luckalt.github.io
